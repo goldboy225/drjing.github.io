@@ -1,1 +1,1 @@
-This is for personal website for Dr. Jing
+This is for personal website
